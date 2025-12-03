@@ -3,7 +3,7 @@ Terms of Use
 
 Terms of Use
 Effective Date: October 30, 2025
-Last Updated: October 30, 2025
+Last Updated: December 2, 2025
 
 These Terms of Use (“Terms”) govern your use of the Calmr app and related services (the “Service”) provided by Iman Khan (“we”, “us”, “our”). By using the Service, you agree to these Terms.
 
