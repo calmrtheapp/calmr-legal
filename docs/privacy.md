@@ -3,7 +3,7 @@ title: Privacy Policy
 ---
 ### Privacy Policy
 Effective Date: October 30, 2025  
-Last Updated: October 30, 2025
+Last Updated: December 2, 2025
 
 This Privacy Policy explains how Iman Khan (“we”, “us”, “our”) collects, uses, and protects information when you use the Calmr mobile application and related services (“the Service”). Calmr provides tools and education to help you reduce emotional overeating.
 
